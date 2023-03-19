@@ -2,7 +2,7 @@
 
 - 📫 How to reach me: 
 discord/ spira#7670
-https://vk.com/sh1tp
+https://vk.com/spir4
 beep-boop.
 <!---
 spira007/spira007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
